@@ -1,4 +1,4 @@
-👉🏻 Download Sonyliv Apk Link (Here).
+👉🏻 Download Sonlyliv Apk Link (Here).
 
 👉🏻 After That Just Login the Email : Pass || If will be Bypasses .
 
@@ -11,7 +11,7 @@
 👉🏻 Then go to the App Manager.
 
 
-👉🏻 In the app manager, you have to click on the SonyLIV  application.
+👉🏻 In the app manager, you have to click on the SonlyLIV  application.
 
 
 👉🏻 Then go to Storage.
@@ -30,4 +30,4 @@
 
 
 
-BOOM NOW YOU HAVE BYPASSES THE OTP FOR SONYLIV😊❤️
+BOOM NOW YOU HAVE BYPASSES THE OTP FOR SONlYLIV😊❤️
